@@ -4,5 +4,5 @@
 - 💞️ I’m looking to collaborate on neuroscience and cognition.
 - 📫 How to reach me: anab.sma@hotmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I çlove analog phtography
+- ⚡ Fun fact: I love analog phtography
 
