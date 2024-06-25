@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @anabmendesaraujo
+- 👋 Hi, I’m @anamendesaraujo
 - 👀 I’m interested in neuroscience, cognition, and people management.
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on neuroscience and cognition.
